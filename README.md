@@ -45,4 +45,6 @@ Thousands of Canadians have made **We The North URL Market** their trusted choic
 
 *For true safety, always use the official address. Anything else risks your security and your experience. The only way to join is through: http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion*
 
-Update:  18 September
+
+
+Update:  10/01/2025 Link is now clickable and working
